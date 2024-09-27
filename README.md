@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on challenging projects
 - 📫 How to reach me for dutradeborab@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love cinema. My favorite film is Wizard of OZ (1939) with the brilliant Judy Garland.
+- ⚡ Fun fact: I love music and cinema. My favorite film is Wizard of OZ (1939) with the brilliant Judy Garland.
 
 
 <!---
